@@ -1,0 +1,1 @@
+- 👋 hola soy @Teikei2022 y tenemos algunos proyectos para realizar el whitepaper y nos interesaría tenerlos como partners o aliados. Habría posibilidad que un miembro de su equipo se contacte con nosotros y en lo posible que hable español? 
